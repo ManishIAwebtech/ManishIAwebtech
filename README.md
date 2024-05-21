@@ -21,7 +21,7 @@ As a former employee, **Manish**, I feel it is my duty to warn others about my e
 
 - Despite numerous attempts to resolve the issue, I have not received my salary.
 - Communication with the owners, Yogesh and Shivani Negi, has been unproductive and evasive.
-- If You are Facing the same then Don't Hagitage , Go and Laudge and FIR  
+- If You are Facing the same then Don't Hagitage , Go and Laudge an FIR  
 
 ## A Humble Message from Manish
 
